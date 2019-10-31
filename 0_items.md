@@ -1,6 +1,6 @@
 ## 目录
 
-### 1. 公演
+### 1. [公演](https://github.com/liulitchi/snh48_library/blob/master/1_performances.md)
 
 ### 2. 直播
 
