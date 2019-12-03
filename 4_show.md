@@ -53,6 +53,12 @@
 
 ### 4. [SNHello 星梦学院(第二季)](https://www.bilibili.com/video/av22961767)
 
+- 第一期：全能歌姬养成计划
+
+  主持人：陆婷、翔哥
+  
+  成员： 冯思佳、李梓、万丽娜、费沁源 vs 谢妮、洪珮雲、唐莉佳、卢静。
+
 
 ### 5.[踹踹TV](https://space.bilibili.com/445523893?from=search&seid=14448609032259347762) 
 
